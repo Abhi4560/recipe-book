@@ -1,5 +1,5 @@
 Ingridents
 
-maggie massala
+maggi massala
 water
-maggie noodels
+maggi noodels
